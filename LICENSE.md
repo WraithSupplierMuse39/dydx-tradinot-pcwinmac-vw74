@@ -1,4 +1,4 @@
-# 
+# VIP dydx trading bot preajustes for Mac OS | Premium dydx trading bot preajustes for PC Windows. Featuring estrategia de reversión a la media and comercio de futuros — optimized for maximum performance.
 
 
 
